@@ -18,15 +18,15 @@ Three short deck videos with original NoBanks music.
 
 **Sovereign biotech AI:**
 
-<!-- DROP-VIDEO-1 -->
+https://github.com/user-attachments/assets/2bf57924-d63b-46f7-83a3-ad47284bfe39
 
 **Sovereign biotech AI, deeper:**
 
-<!-- DROP-VIDEO-2 -->
+https://github.com/user-attachments/assets/4485f838-aa2c-43d9-8706-f9a425aa24ad
 
 **Sovereign research recall:**
 
-<!-- DROP-VIDEO-3 -->
+https://github.com/user-attachments/assets/5505c60d-a8c0-4607-bb79-b6354afca7f0
 
 ---
 
