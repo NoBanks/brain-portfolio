@@ -22,11 +22,11 @@ https://github.com/user-attachments/assets/2bf57924-d63b-46f7-83a3-ad47284bfe39
 
 **BRAIN, the personal AI scientific research partner:**
 
-https://github.com/user-attachments/assets/4485f838-aa2c-43d9-8706-f9a425aa24ad
+https://github.com/user-attachments/assets/816c4ff9-e04e-4089-84f0-3ed3068e4f61
 
 **Sovereign architecture, built for Kate at DNKO:**
 
-https://github.com/user-attachments/assets/5505c60d-a8c0-4607-bb79-b6354afca7f0
+https://github.com/user-attachments/assets/b702661c-bec0-4a40-abd1-7aca36ac124e
 
 ---
 
